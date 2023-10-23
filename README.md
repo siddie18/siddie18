@@ -16,7 +16,7 @@
 
  - I love working with Data:heart:
  
- - I have experience in working as a Business & Technology Consultant⚡
+ - I have experience working as a Business & Technology Consultant with one of the Big4 Consulting firm⚡
 
  - Have expertise in applying statistical and analytical techniques in fields of Marketing, Retail, CPG 🔭
 
